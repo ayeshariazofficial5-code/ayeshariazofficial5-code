@@ -54,3 +54,5 @@ And every challenge I conquer today makes me unstoppable tomorrow."
 [![](https://visitcount.itsvg.in/api?id=hanzlatahirofficial2004-dotcom&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+
+<div align="center" style="background-color:black; color:white; padding:20px;"> ... </div>
